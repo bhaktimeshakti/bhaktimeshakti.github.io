@@ -1,1 +1,1 @@
-# bhaktimeshakti.github.io
+# gravity_points.github.io
